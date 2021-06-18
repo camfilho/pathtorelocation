@@ -1,4 +1,4 @@
-# Path to Realocation
+# Path to Relocation
 
 ## Platforms to help you find your relocation job!
 
